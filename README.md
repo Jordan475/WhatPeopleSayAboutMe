@@ -3,5 +3,6 @@ I did all of the work alone and made sure every guest had a pheonomenal experien
 I hope that I can deliver this same level of service for your business.
 
 You can also read straight from my profile here https://turo.com/us/en/drivers/18834901
+
 222 five star reviews
 73 of the reviews personally mention me by name
